@@ -9,3 +9,4 @@
 ![image (8)](https://github.com/user-attachments/assets/90456d41-1035-4815-91b4-16fce597bcd5)
 ![image (5) (1)](https://github.com/user-attachments/assets/49294971-83d6-4957-85f2-4489aa8f00be)
 ![image (4) (1)](https://github.com/user-attachments/assets/0245cc54-2456-4793-9b9f-82bf9246dc7f)
+![mayo-clinic-logo](https://github.com/user-attachments/assets/84f8b1db-da49-4434-afbd-6500d505aa64)
